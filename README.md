@@ -1,1 +1,1 @@
-# Obah-gads-2020-projects
+# Obahgoodness's GADs project submissions 
